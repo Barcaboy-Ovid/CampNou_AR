@@ -6,5 +6,5 @@ Steps:
    
 Thank you!!
    
- I like to thank [Mr. Farhad Guli](https://sketchfab.com/farhad.Guli) for the 3D model - [Sketch fab](https://skfb.ly/TVIy)
+ I like to thank [Mr. Farhad Guli](https://sketchfab.com/farhad.Guli) for the [3D model](https://skfb.ly/TVIy)
    
